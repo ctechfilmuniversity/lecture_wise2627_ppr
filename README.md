@@ -9,7 +9,7 @@ Raum 6119
 
 **Sessions**  
 
-06.11.26  (10:00 h - 13:00 h - this session will count as 2 P&PR sessions)
+06.11.26  (10:00 h - 13:00 h - this session will count as 2 P&PR sessions)  
 3. Semester CTech Students  
 _CC2 Projects Werkschau_  
   
