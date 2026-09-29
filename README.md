@@ -10,7 +10,7 @@ Raum 6119
 **Sessions**  
 
 06.11.26  (10:00 h - 13:00 h - this session will count as 2 P&PR sessions)  
-3. Semester CTech Students  
+rd Semester CTech Students  
 _CC2 Projects Werkschau_  
   
 Max Rüth (CTech)  
@@ -23,7 +23,7 @@ _Annecy International Animation Film Festival_
   
   
 02.12.26  
-3. Semester CTech Students  
+3rd Semester CTech Students  
 _Collab Project_  
   
 09.12.26   
@@ -38,7 +38,7 @@ Aljoscha Dakic (CTech)
 _Master's Project_  
   
 06.01.27  (13:00 h - 17:00 h - this session will count as 2 P&PR sessions)
-1. Semester CTech Students  
+1st Semester CTech Students  
 _Orientation Projects_  
   
 13.01.27  
@@ -49,7 +49,7 @@ Max Rüth (CTech)
 _Master's Project / CTech II Projects_  
   
 27.01.27   
-3. Semester CTech Students  
+3rd Semester CTech Students  
 _Collab Project_    
   
 03.02.27  
