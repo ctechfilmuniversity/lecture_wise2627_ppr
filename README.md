@@ -10,7 +10,7 @@ Raum 6119
 **Sessions**  
 
 06.11.26  (10:00 h - 13:00 h - this session will count as 2 P&PR sessions)  
-rd Semester CTech Students  
+3rd Semester CTech Students  
 _CC2 Projects Werkschau_  
   
 Max Rüth (CTech)  
