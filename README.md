@@ -17,10 +17,18 @@ Max Rüth (CTech)
 _Annecy International Animation Film Festival_  
   
 **11.11.26**  
+Lisa Passing (CTech)  
+_Waldeinsamkeit (digi.tale)_  
   
+Marta Pang (CTech)  
+_Master's Project / Ctech II Projects_  
   
 **25.11.26**   
+Katharina Kleinhans (CTech)  
+_Planetarium Münster Visuals_    
   
+Moritz Huson (CTech)  
+_Master's Project_  
   
 **02.12.26**  
 3rd Semester CTech Students  
