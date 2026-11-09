@@ -44,6 +44,9 @@ _Master's Project / CTech II Projects_
 **16.12.26**  
 Aljoscha Dakic (CTech)  
 _Master's Project_  
+
+Linus Käpplinger & Johannes Dietze (CTech)  
+_CC2 Projekte_  
   
 **06.01.27**  (13:00 h - 17:00 h - this session will count as 2 P&PR sessions)
 1st Semester CTech Students  
